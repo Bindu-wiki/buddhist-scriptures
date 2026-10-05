@@ -1,0 +1,3 @@
+#### 2. (76) Chuyện thứ hai - Lâu Đài Nandana (Nandana-Vimàna)
+
+Cũng giống như chuyện trước, trừ điểm ở đây: Người thợ nghèo đã có vợ và câu kệ đầu đổi là: Sáng rực như vườn Nan-da-na,...

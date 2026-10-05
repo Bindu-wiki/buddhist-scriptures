@@ -1,0 +1,12 @@
+<!-- source: https://conduonggiacngo.com/kinh-thu-lang-nghiem-quyen-9#tu-thien-1-6 -->
+# TỨ THIỀN
+
+1. Lại nữa A Nan! Cõi trời này, thân tâm chẳng bị bức bách, nhân khổ đã hết, biết sự vui chẳng thường trụ, lâu ắt biến hoại, hai tâm khổ vui nhất thời cùng xả, tướng thô đã diệt, tánh phước được sanh, hạng này gọi là Phước Sanh Thiên.
+
+2. Tâm xả viên dung, thắng giải trong sạch, được sự tùy thuận nhiệm mầu, cùng tột vị Lai, tánh phước chẳng ngăn ngại, hạng này gọi là Phước Ái Thiên.
+
+3. A Nan! Từ cõi trời này tẻ ra hai đường: Nếu dùng tâm sáng tỏ đầy đủ phước đức trước kia để tu chứng an trụ, hạng này gọi là Quảng Quả Thiên.
+
+4. Nếu nơi tâm trước kia, nhàm chán cả khổ vui, lại nghiền ngẫm cái tâm xả chẳng gián đoạn, trọn thành đạo xả, thân tâm tiêu diệt, lắng tâm bặt tưởng, trải qua năm trăm kiếp. Nhưng vì người ấy đã lấy cái sanh diệt làm nhân, thì chẳng thể phát minh tánh chẳng sanh diệt, nên nửa kiếp đầu thì diệt, nửa kiếp sau lại sanh, hạng này gọi là Vô Tưởng Thiên.
+
+A Nan! Bốn bậc này tất cả cảnh khổ vui của thế gian chẳng thể lay động, dù chẳng phải là chỗ chơn bất động của đạo vô vi, nhưng nơi tâm có sở đắc, công dụng thuần thục, gọi là Tứ Thiền.

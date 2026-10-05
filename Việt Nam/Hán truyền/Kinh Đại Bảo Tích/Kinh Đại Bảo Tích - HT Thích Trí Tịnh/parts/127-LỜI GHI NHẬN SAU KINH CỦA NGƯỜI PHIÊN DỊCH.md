@@ -1,0 +1,21 @@
+# LỜI GHI NHẬN SAU KINH CỦA NGƯỜI PHIÊN DỊCH
+
+Tôi từ bé đôi mắt đã bịnh yếu lại thêm càng ngày càng cận. Lúc tôi cầm viết ghi mấy dòng nầy là lúc đôi mắt đã bịnh nhiều suốt hơn một năm, kể từ đầu tháng Tám năm ngoái. Năm Mậu Thìn (1988), nay nhìn chữ chỉ thấy lờ mờ. Hồi nhớ lại từ ngày vào đạo, theo nghĩa thế tục, đến nay đã hơn nữa thế kỷ, luôn luôn thấy việc học kinh, tụng kinh, niệm Phật, dạy kinh, giảng kinh và phiên dịch kinh từ Hán tạng ra Việt văn làm chánh hạnh của đời mình.  
+Năm 1947, bộ kinh Diệu Pháp Liên Hoa là bộ kinh đầu tiên được ấn hành, kế đến là Phổ Hiền Hạnh Nguyện v.v... Đến năm 1953 bộ Đường về Cực Lạc hai tập được ra đời, do bộ này mà hai năm sau, năm 1955, hội Cực Lạc Liên Hữu được thành lập, lấy chùa Vạn Đức ở Thủ Đức làm trung tâm và ngày mùng Sáu tháng Tám, ngày khánh lễ Tổ Huệ Viễn là ngày đại hội thường niên. Nhớ lại biết bao đạo tình đạo nghĩa của bao nhiêu Hòa Thượng, Thượng Tọa, Ni Sư, Đại Đức, Sư Cô, bao nhiêu Tăng Ni cùng các Đạo hữu cư sĩ từ các tỉnh miền Nam nước Việt, có các vị từ Nam Vang (Cambodge) cũng về dự đại hội, tiếng niệm hồng danh Đức Phật, sổ ghi công đức niệm Phật được lan rộng gần xa…  
+Tôi ghi vài dòng trên đây là có ý ghi lại ảnh hưởng của bộ Đường về Cực Lạc.  
+Rồi các năm sau, những bộ kinh khác do tôi phiên dịch được tiếp tục ấn hành, như là bộ kinh Hoa Nghiêm, bộ kinh Đại Bát Niết Bàn, bộ kinh Đại Bát Nhã. Những năm 1970, tôi dịch xong bộ kinh Đại Bửu Tích, và mãi đến năm 1987 mới được bắt đầu ấn hành. Vì những năm trước đó điều kiện ấn hành không được thuận lợi, nên cũng làm uể oải tinh thần dịch kinh, nên tôi không sốt sắng phiên dịch thêm, để thời gian quí báu tuần tự trôi qua trong lúc tuổi già thật là điều đáng tiếc. Nhờ vào sự ấn hành bộ kinh Đại Bửu Tích, thúc đẩy tôi phấn khởi, nên trong ba tháng liền an cư năm 1988, tôi dịch xong bộ kinh Đại Tập, và nó được ấn hành tiếp nối bộ kinh Đại Bửu Tích, Hán tạng bộ Hạ.  
+Bộ kinh Đại Bửu Tích Hán văn được lưu hành từ xưa nay, vì thể theo ba môn Vô lậu học Giới Định Huệ, nên Ngài Bồ Đề Lưu Chí để pháp hội Tam Tụ Tịnh Giới ở đầu bộ kinh. Bộ Việt văn nầy, tôi thể theo Tam bửu Phật Pháp Tăng nên tôi để pháp hội Vô Lượng Thọ Phật khởi đầu, và cũng có ý muốn cho người đọc lúc mở kinh ra đã kết duyên với Đức Phật A Di Đà, Đức Phật đã được giới thiệu trong nhiều bộ kinh Đại thừa, và cũng là hồng danh
+mà phần lớn Phật tử ta luôn trì niệm. Nếu các pháp hữu muốn so với bộ Hán văn, chỉ giản đơn sửa tập I Việt văn thành tập II, và sửa tập Việt văn tập II thành tập I là hai bộ Hán và Việt ăn khớp nhau.  
+Nội dung bộ Đại Bửu Tích Hán văn đến pháp hội Quảng Bác Tiên Nhơn là hết, nhưng hết với nửa chừng. Trong bộ Việt văn nầy, tôi sưu tầm trong Đại tạng, bổ sung phần cuối trọn vẹn cho pháp hội nầy. Và cũng từ Đại tạng tôi dịch thêm pháp hội Diệu Cát Tường Bồ-tát.  
+Tiếp theo đó, nếu các pháp hữu thấy pháp hội nào có câu Đức Phật ngự tại giữa khoảng cõi Dục và cõi sắc trong Đại Bửu Phường Đình thì đó chính là kinh Đại Tập. Cũng từ trong Đại tạng, tôi phiên dịch thêm pháp hội Vô Tận Ý Bồ-tát nối sau bộ kinh Đại Tập Hán văn đã lưu hành và để kết thúc toàn bộ kinh Đại Bửu Tích Việt văn, tôi đặt pháp hội Quán Vô Lượng Thọ Phật. Chư pháp hữu thân mến, cho phép tôi được dùng từ nầy để gọi tất cả các giới Phật tử xuất gia cũng như tại gia, tôi có ý nguyện nhỏ, dầu nhỏ nhưng là từ đáy lòng thiết tha, muốn cùng các pháp hữu, tất cả các pháp hữu, những ai có đọc có tụng có nghe thấy những quyển kinh sách do tôi dịch soạn, sẽ là người bạn quyến thuộc thân thiết với tôi đời nầy và mãi mãi những đời sau, cùng nhau kết pháp duyên, cùng nhau dự pháp hội, cùng dìu dắt nhau, dìu dắt tôi để được vững bước mãi trên con đường đạo dài xa, con đường đạo nhiều trở ngại chông gai lồng giữa cõi đời thế tục mà lớp vỏ cứng của nó là tứ lưu bát nạn, cạm bẫy của nó là lợi danh ngũ dục, sức mạnh của nó là cơn lốc bát phong. Tôi chơn thành nói lên câu cần dìu dắt nhau. Vì vào giây phút mà tôi đang nguệch ngoạc ghi lại vài dòng này, chính tôi, phải chính tôi, không dám ngửng mặt tự xưng là Tỳ Kheo chơn chánh, chỉ biết như thảo phú địa, nhứt tâm sám hối mười phương pháp giới.  
+Nam Mô Cầu Sám Hối Bồ-tát.
+
+Chùa VẠN ĐỨC  
+Ngày Trùng Cửu, Năm Kỷ Tỵ
+
+(08 – 10 – 1989)  
+THÍCH TRÍ TỊNH
+
+Cẩn Chí.
+
+---o0o---

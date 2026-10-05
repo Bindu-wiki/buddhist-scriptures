@@ -1,0 +1,61 @@
+### XIII. Phẩm Thế Gian
+
+> 167\. "Dầu lợi người bao nhiêu,  
+> Chớ quên phần tư lợi,  
+> Nhờ thắng trí tư lợi.  
+> Hãy chuyên tâm lợi mình."
+
+> 168\. "Nỗ lực, chớ phóng dật!  
+> Hãy sống theo chánh hạnh;  
+> Người chánh hạnh hưởng lạc,  
+> Cả đời này, đời sau."
+
+> 169\. "Hãy khéo sống chánh hạnh,  
+> Chớ sống theo tà hạnh!  
+> Người chánh hạnh hưởng lạc,  
+> Cả đời này, đời sau."
+
+> 170\. "Hãy nhìn như bọt nước,  
+> Hãy nhìn như cảnh huyễn!  
+> Quán nhìn đời như vậy,  
+> Thần chết không bắt gặp."
+
+> 171\. "Hãy đến nhìn đời này,  
+> Như xe vua lộng lẫy,  
+> Người ngu mới tham đắm,  
+> Kẻ trí nào đắm say."
+
+> 172\. "Ai sống trước buông lung,  
+> Sau sống không phóng dật,  
+> Chói sáng rực đời này.  
+> Như trăng thoát mây che."
+
+> 173\. "Ai dùng các hạnh lành,  
+> Làm xóa mờ nghiệp ác,  
+> Chói sáng rực đời này,  
+> Như trăng thoát mây che."
+
+> 174\. "Đời này thật mù quáng,  
+> Ít kẻ thấy rõ ràng.  
+> Như chim thoát khỏi lưới,  
+> Rất ít đi thiên giới."
+
+> 175\. "Như chim thiên nga bay,  
+> Thần thông liệng giữa trời;  
+> Chiến thắng ma, ma quân,  
+> Kẻ trí thoát đời này."
+
+> 176\. "Ai vi phạm một pháp,  
+> Ai nói lời vọng ngữ,  
+> Ai bác bỏ đời sau,  
+> Không ác nào không làm."
+
+> 177\. "Keo kiết không sanh thiên,  
+> Kẻ ngu ghét bố thí,  
+> Người trí thích bố thí,  
+> Đời sau, được hưởng lạc."
+
+> 178\. "Hơn thống lãnh cõi đất,  
+> Hơn được sanh cõi trời,  
+> Hơn chủ trì vũ trụ,  
+> Quả Dự Lưu tối thắng."
