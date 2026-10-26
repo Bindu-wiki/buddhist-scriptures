@@ -1,0 +1,3 @@
+### 5\. VẤN ĐỀ CHƯ PHẬT
+
+(1) Th: - Nếu quan niệm như vậy, có phải các Ngài khác nhau về sự giác ngộ? về năng lực thần thông? Về tri kiến toàn giác? về tuệ nhãn? ...
