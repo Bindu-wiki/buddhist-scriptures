@@ -1,6 +1,6 @@
 # Buddhist Scriptures
 
-[Bindu.wiki](https://bindu.wiki) · [App Store](https://apps.apple.com/app/id6807635090) · [Google Play](https://play.google.com/store/apps/details?id=wiki.bindu)
+[Bindu](https://bindu.wiki) trên web · [Bindu](https://apps.apple.com/app/id6807635090) trên App Store · [Bindu](https://play.google.com/store/apps/details?id=wiki.bindu) trên Google Play
 
 [English](#english) · [Tiếng Việt](#tiếng-việt) · [中文](#中文) · [日本語](#日本語) · [한국어](#한국어) · [ไทย](#ไทย)
 
